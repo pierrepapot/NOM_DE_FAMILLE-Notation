@@ -7,4 +7,4 @@
 #### Japonais
 
 
-![drapeau](https://goo.gl/images/FCoh3s)
+![drapeau](https://static.weezbe.com/samouraimedieval/Images/products/p_153G_100503152032.jpg)
